@@ -12,11 +12,11 @@ Adult (18+)
 
 🕸️ : NOTES
 
-; Leave me out of drama I can assure you that **I don't care**
+; Leave me out of drama. Go be miserable somewhere else.
 
 ; Feel free to whisper! I'm AFK half the time so please be aware that response times are slow. If I'm on VR don't expect a response
 
-; Please know that **I'm a system**. **You can always check who's fronting by which Github profile they have linked to their horse**. If it's the main one it's not me
+; Please note that **I'm a system**. **You can always check who's fronting by which Github profile they have linked to their horse**. If it's the main one it's not me
 
 ; Fellow Clefs are free to interact
 
