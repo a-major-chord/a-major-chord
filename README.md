@@ -14,7 +14,7 @@ Adult (18+)
 
 ; Leave me out of drama I can assure you that **I don't care**
 
-; Proshippers and pro-endo DNI
+; Proshippers and pro-endo DNI. Also DNI if you're a Bright apologist
 
 ; Feel free to whisper! I'm AFK half the time so please be aware that response times are slow. If I'm on VR don't expect a response
 
