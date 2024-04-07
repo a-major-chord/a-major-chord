@@ -18,7 +18,7 @@ Adult (18+)
 
 ; Please know that **I'm a system**. **You can always check who's fronting by which Github profile they have linked to their horse**. If it's the main one it's not me
 
-; I don't roleplay sorry ;,P
+; Fellow Clefs are free to interact
 
 ︶︶︶ꞋꞌꞋ🕸️ꞋꞌꞋ︶︶︶
 
