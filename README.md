@@ -31,3 +31,5 @@ Adult (18+)
 ; Radqueer
 
 ︶︶︶ꞋꞌꞋ🕸️ꞋꞌꞋ︶︶︶
+
+![](https://komarev.com/ghpvc/?username=a-major-chord&style=flat-square&color=a40c14)
