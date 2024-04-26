@@ -20,6 +20,8 @@ Adult (18+)
 
 ; Under 16 interact with caution if I'm on the PG server thank you.
 
+; __I don't want to be in your Tiktoks. Please don't include me in them.__
+
 ︶︶︶ꞋꞌꞋ🕸️ꞋꞌꞋ︶︶︶
 
 🕸️ : DNI
