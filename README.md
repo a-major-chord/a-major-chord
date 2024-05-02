@@ -32,6 +32,8 @@ Adult (18+)
 
 ; Radqueer
 
+; the coffin of andy and leyley fans disrespectfully fuck off lmao
+
 ︶︶︶ꞋꞌꞋ🕸️ꞋꞌꞋ︶︶︶
 
 ![](https://komarev.com/ghpvc/?username=a-major-chord&style=flat-square&color=a40c14)
