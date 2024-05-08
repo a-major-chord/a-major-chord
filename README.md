@@ -1,6 +1,4 @@
-[DID/OSDD resources](https://rentry.co/DID-Research)
-
-![](https://komarev.com/ghpvc/?username=a-major-chord&style=flat-square&color=a40c14)
+![Counter](https://komarev.com/ghpvc/?username=a-major-chord&style=flat-square&color=a40c14)
 
 ![from the river to the sea palestine will be free](https://64.media.tumblr.com/78a720588f1f20d8cc4b534a075749ca/c1444e7ecc640155-d7/s100x200/b94b464f70a30998ad11a861a62e6a68cda8fc0e.gif) ![keep eyes on sudan](https://64.media.tumblr.com/7da266a630b98bd9506a12ac9cdd243e/4b7b73480aa10393-e0/s100x200/9b02e38689d53c61084638cf94ad49540f07ef7d.png) ![stop the genocide](https://64.media.tumblr.com/d23320701901bcfd59c78a70aad97d95/1a67f63910dc5c4e-11/s100x200/06f805d58b885f587c33ec3d4f3dc77e60bd5717.gif) ![hands off yemen](https://64.media.tumblr.com/ead19545279f6fc9db256563d7bb5c83/22cadc81babf91a4-98/s100x200/fb651a99aff8562526524db0aff10289b3ac64fe.png)
 # Table of Contents
