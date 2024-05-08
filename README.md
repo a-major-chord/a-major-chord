@@ -3,7 +3,16 @@
 ![](https://komarev.com/ghpvc/?username=a-major-chord&style=flat-square&color=a40c14)
 
 ![from the river to the sea palestine will be free](https://64.media.tumblr.com/78a720588f1f20d8cc4b534a075749ca/c1444e7ecc640155-d7/s100x200/b94b464f70a30998ad11a861a62e6a68cda8fc0e.gif) ![keep eyes on sudan](https://64.media.tumblr.com/7da266a630b98bd9506a12ac9cdd243e/4b7b73480aa10393-e0/s100x200/9b02e38689d53c61084638cf94ad49540f07ef7d.png) ![stop the genocide](https://64.media.tumblr.com/d23320701901bcfd59c78a70aad97d95/1a67f63910dc5c4e-11/s100x200/06f805d58b885f587c33ec3d4f3dc77e60bd5717.gif) ![hands off yemen](https://64.media.tumblr.com/ead19545279f6fc9db256563d7bb5c83/22cadc81babf91a4-98/s100x200/fb651a99aff8562526524db0aff10289b3ac64fe.png)
-
+# Table of Contents
+1. [STAMPS](https://github.com/a-major-chord/a-major-chord/blob/main/README.md#stamps)
+2. [PALESTINE RESOURCES](https://github.com/a-major-chord/a-major-chord/blob/main/README.md#palestine-resources)
+3. [CONGO RESOURCES](https://github.com/a-major-chord/a-major-chord/blob/main/README.md#congo-resources)
+4. [YEMEN RESOURCES](https://github.com/a-major-chord/a-major-chord/blob/main/README.md#yemen-resources)
+5. [SUDAN RESOURCES](https://github.com/a-major-chord/a-major-chord/blob/main/README.md#sudan-resources)
+6. [UKRAINE RESOURCES](https://github.com/a-major-chord/a-major-chord/blob/main/README.md#ukraine-resources)
+7. [LEBANON RESOURCES](https://github.com/a-major-chord/a-major-chord/blob/main/README.md#ukraine-resources)
+8. [DID/OSDD RESOURCES](
+9. [RECIPES AND ALTERNATIVES]([DID/OSDD resources](https://rentry.co/DID-Research))
 # **STAMPS**
 
 N: I don't own any of these stamps.
@@ -11,7 +20,7 @@ N: I don't own any of these stamps.
 * [Palestine Stamps](https://www.tumblr.com/ice-cappuccino/732508735288852480/palestine-supporting-blinkie-button-stamp-and?source=share) 
 * [Sudan Stamps](https://www.tumblr.com/xumoonhao/742181406406557696/assorted-sudan-web-graphics-posts-with-donation?source=share)
 * [Congo Stamps](https://www.tumblr.com/xumoonhao/742287287721869312/assorted-congo-web-graphics-posts-with-donation?source=share)
-* [Sudan Stamps](https://www.tumblr.com/xumoonhao/742287282798821376/assorted-yemen-web-graphics-donate-to-yemen?source=share)
+* [Yemen Stamps](https://www.tumblr.com/xumoonhao/742287282798821376/assorted-yemen-web-graphics-donate-to-yemen?source=share)
 
 # **PALESTINE RESOURCES**
 
@@ -46,6 +55,7 @@ https://www.shutitdown4palestine.org/
 # **YEMEN RESOURCES**
 
 * https://gogetfunding.com/emergency-appeal-to-fight-famine-in-yemen-3/
+* https://www.launchgood.com/campaign/emergency_food_baskets_for_yemen#!/
 
 # **HAITI RESOURCES**
 
@@ -80,7 +90,10 @@ https://www.shutitdown4palestine.org/
 * https://www.justgiving.com/campaign/reachresponselebanonwinter
 * https://www.savethechildren.org.uk/donate/single/donation-single-00006
 * https://irusa.org/
-  
+
+# DID and OSDD resources
+* [DID/OSDD resources](https://rentry.co/DID-Research)
+
 # **RECIPES AND ALTERNATIVES**
 * http://www.beneboy.com/mcmenu.pdf
 * https://twitter.com/IamKalyanRaksha/status/1713008559473234161
