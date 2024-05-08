@@ -2,14 +2,16 @@
 
 ![](https://komarev.com/ghpvc/?username=a-major-chord&style=flat-square&color=a40c14)
 
-![](https://64.media.tumblr.com/06428c60361dbd48d6c9c0af2526d87a/c1444e7ecc640155-4a/s100x200/338928d9011d1a681215467c5a73b24551acd9c0.gif) 
+![from the river to the sea palestine will be free](https://64.media.tumblr.com/78a720588f1f20d8cc4b534a075749ca/c1444e7ecc640155-d7/s100x200/b94b464f70a30998ad11a861a62e6a68cda8fc0e.gif) ![keep eyes on sudan](https://64.media.tumblr.com/7da266a630b98bd9506a12ac9cdd243e/4b7b73480aa10393-e0/s100x200/9b02e38689d53c61084638cf94ad49540f07ef7d.png) ![stop the genocide](https://64.media.tumblr.com/d23320701901bcfd59c78a70aad97d95/1a67f63910dc5c4e-11/s100x200/06f805d58b885f587c33ec3d4f3dc77e60bd5717.gif) ![hands off yemen](https://64.media.tumblr.com/ead19545279f6fc9db256563d7bb5c83/22cadc81babf91a4-98/s100x200/fb651a99aff8562526524db0aff10289b3ac64fe.png)
 
 # **STAMPS**
 
-N: I don't own these stamps.
+N: I don't own any of these stamps.
 * [Palestine Stamps](https://www.tumblr.com/xumoonhao/740278073095782400/assorted-palestine-web-graphics-palestinian?source=share)
 * [Palestine Stamps](https://www.tumblr.com/ice-cappuccino/732508735288852480/palestine-supporting-blinkie-button-stamp-and?source=share) 
 * [Sudan Stamps](https://www.tumblr.com/xumoonhao/742181406406557696/assorted-sudan-web-graphics-posts-with-donation?source=share)
+* [Congo Stamps](https://www.tumblr.com/xumoonhao/742287287721869312/assorted-congo-web-graphics-posts-with-donation?source=share)
+* [Sudan Stamps](https://www.tumblr.com/xumoonhao/742287282798821376/assorted-yemen-web-graphics-donate-to-yemen?source=share)
 
 # **PALESTINE RESOURCES**
 
