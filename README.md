@@ -50,7 +50,6 @@ https://www.shutitdown4palestine.org/
 * https://healafrica.org/donate/
 * https://www.warchild.org.uk/our-work/where-we-work/democratic-republic-of-congo
 * https://www.concern.org.uk/donate/drc-hunger-crisis
-* https://twitter.com/SHIINATISM/status/1760061794134249911
 
 # **YEMEN RESOURCES**
 
@@ -92,7 +91,7 @@ https://www.shutitdown4palestine.org/
 * https://irusa.org/
 
 # DID and OSDD resources
-* [DID/OSDD resources](https://rentry.co/DID-Research)
+* [DID/OSDD resources masterlist](https://rentry.co/DID-Research)
 
 # **RECIPES AND ALTERNATIVES**
 * http://www.beneboy.com/mcmenu.pdf
