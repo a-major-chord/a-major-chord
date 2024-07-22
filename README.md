@@ -9,8 +9,7 @@
 5. [SUDAN RESOURCES](https://github.com/a-major-chord/a-major-chord/blob/main/README.md#sudan-resources)
 6. [UKRAINE RESOURCES](https://github.com/a-major-chord/a-major-chord/blob/main/README.md#ukraine-resources)
 7. [LEBANON RESOURCES](https://github.com/a-major-chord/a-major-chord/blob/main/README.md#ukraine-resources)
-8. [DID/OSDD RESOURCES](https://github.com/a-major-chord/a-major-chord/blob/main/README.md#did-and-osdd-resources)
-9. [RECIPES AND ALTERNATIVES](https://github.com/a-major-chord/a-major-chord/blob/main/README.md#recipes-and-alternatives)
+8. [RECIPES AND ALTERNATIVES](https://github.com/a-major-chord/a-major-chord/blob/main/README.md#recipes-and-alternatives)
 
 
 # **STAMPS**
@@ -89,9 +88,6 @@ https://www.shutitdown4palestine.org/
 * https://www.justgiving.com/campaign/reachresponselebanonwinter
 * https://www.savethechildren.org.uk/donate/single/donation-single-00006
 * https://irusa.org/
-
-# DID and OSDD resources
-* [DID/OSDD resources masterlist](https://rentry.co/DID-Research)
 
 # **RECIPES AND ALTERNATIVES**
 * http://www.beneboy.com/mcmenu.pdf
