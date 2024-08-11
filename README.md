@@ -41,6 +41,7 @@ https://www.shutitdown4palestine.org/
 * https://www.gofundme.com/f/help-us-to-save-the-rest-of-us-and-our-dreams?utm_campaign=p_cp+share-sheet&utm_medium=copy_link_all&utm_source=customer
 * https://www.gofundme.com/f/escape-from-the-death?utm_campaign=p_cp+fundraiser-sidebar&utm_content=icons_with_impact_var_d&utm_medium=copy_link_all&utm_source=customer
 * https://piousprojects.org/campaign/2712
+* https://www.tumblr.com/scp4palestine/757192524575145984/our-selected-charities?source=share
 
   
 # **CONGO RESOURCES**
